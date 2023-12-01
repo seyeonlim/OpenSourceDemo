@@ -6,3 +6,5 @@ squeeze past everyone. When I finaly got out of the cword I saw that my purse wa
 I went into Thornes and asked for some change just so I could buy myself a warm hot chocolate because it was so cold. The cashier siad no as if it was their own money. I then left the store and suddnely it started snowing. Well that's all, cya next time.
 
 - Cherry
+
+Seyeon: I love this diary!
