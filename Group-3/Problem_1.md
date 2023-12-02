@@ -6,7 +6,7 @@ Answer: Jonathan from Saint Helena LOL
 
 # Riddle: What has no beginning, end, or middle, but is always coming and going?
 
-Answer: (Place answer here when you've found it!)
+Answer: Donut
 
 
 
