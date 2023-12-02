@@ -12,4 +12,4 @@ Answer: (Place answer here when you've found it!)
 
 # Riddle: What's weightless, visible to the naked eye, and when you put it in a barrel of water it will make the barrel lighter in weight?
 
-Answer: (Place answer here when you've found it!)
+Answer: Hole
