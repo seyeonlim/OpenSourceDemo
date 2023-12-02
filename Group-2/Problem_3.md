@@ -6,10 +6,10 @@ Answer: (Place answer here when you've found it!)
 
 # Riddle: Walk on the living, they don't even mumble. Walk on the dead, they mutter and grumble. What are they?
 
-Answer: (Place answer here when you've found it!)
+Answer: Leaves
 
 
 
 # Riddle: Say my name, and I am no more. What am I?
 
-Answer: (Place answer here when you've found it!)
+Answer: Silence
